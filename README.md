@@ -1,1 +1,1 @@
-# Board-Game-Master-X
+# 乘风号/Gale Voyager
